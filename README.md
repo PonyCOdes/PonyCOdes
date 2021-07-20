@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PonyCOdes
+- 👀 I’m interested in coding on Typescrypt solidity and other.. 
+- 🌱 I’m currently learning microframeworks and course dev
+- 💞️ I’m looking project were i will be important piece of team
+- 📫 How to reach me @hoakinpenis in telegramm...
